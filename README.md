@@ -1,4 +1,4 @@
- ![The Glorious Army of Hind_ The Indian Army in Pictures](https://github.com/Volemort79219/Volemort79219/assets/126829312/a6e156e2-dc77-4b8c-8637-ba16f719bd19)
+
 
 
 - 👋 Hi, I’m V0ldi
