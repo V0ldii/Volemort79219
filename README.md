@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 Wanna connect just ping me here --> rhea.rai6392@gmail.com or via my social media accounts.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love everything and at the same time hates everything.
+- ⚡ Fun fact: haha
 
 <!---
 Volemort79219/Volemort79219 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
